@@ -14,4 +14,4 @@ currently being supported with security updates.
 
 ## Reporting a Vulnerability
 
-Not shure yet.
+Not shure yet. if you have tips, share them, else dunno.
