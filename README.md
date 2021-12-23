@@ -2,4 +2,4 @@
 - 👀 I’m interested in basicly nothing.
 - 🌱 I’m currently learning: i am incapable of learning anything.
 - 💞️ I’m looking to collaborate on what is the meaning of life.
-- 📫 How to reach me: pray to the Lovecraft mythos so that we may be reunited in madness.
+- 📫 How to reach me: pray to the Lovecraft mythos so that we may be reunited in madness. and have a bagle together.
